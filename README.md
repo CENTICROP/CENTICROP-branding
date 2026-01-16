@@ -3,3 +3,5 @@ If you feel some type of way about CENTICROP, here's something for you. Download
 
 Love,
 Bild and Green
+
+![image](images/CENTICROP-keychains.jpg)
